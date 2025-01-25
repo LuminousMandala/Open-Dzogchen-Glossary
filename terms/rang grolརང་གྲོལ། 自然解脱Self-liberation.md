@@ -1,5 +1,5 @@
 
-## རང་གྲོལ། 自然解脱
+## rang grol རང་གྲོལ། 自然解脱 Self-liberation
 
 ### 中文
 
